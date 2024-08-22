@@ -1,0 +1,2 @@
+# deitechnologies
+Boss Owa
